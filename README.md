@@ -1,1 +1,1 @@
-Historial del taller
+Historial del taller.
